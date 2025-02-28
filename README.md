@@ -25,7 +25,7 @@ El limón es uno de los ingredientes más recomendados para elaborar postres cas
 
 1. En un bol agrega los dos tipos de leche y luego el **jugo de limón**. Bate todo enérgicamente con un batidor manual, o globo, hasta que la mezcla agarre espesor. Si quieres preparar un postre de limón y galletas más ligero, puedes optar por emplear [leche condensada sin azúcar](https://www.recetasgratis.net/receta-de-leche-condensada-sin-azucar-55895.html), que puede ser comprada o casera.
 
-![](https://cdn0.recetasgratis.net/es/posts/9/0/7/postre_de_limon_con_galletas_maria_44709_paso_0_orig.jpg)
+![](./postre_de_limon_con_galletas_maria_44709_paso_0_orig.jpg)
 
 2. En un molde de unos 25 cm de diámetro, pon una capa de crema de leche y limón y, sobre ella, una capa de galletas María, y así hasta hacer 3 o 4 capas. Verás que este **postre de limón y galletas** es muy rápido de hacer, además de económico y delicioso.
 
